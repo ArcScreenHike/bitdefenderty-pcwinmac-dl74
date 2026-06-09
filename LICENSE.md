@@ -1,4 +1,4 @@
-# 
+# Professionnel Bitdefender Total Security scripts pour Mac OS | Premium Bitdefender Total Security scripts pour PC Windows. Avec connexion biométrique et évaluation des vulnérabilités — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
